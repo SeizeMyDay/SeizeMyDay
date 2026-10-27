@@ -1,3 +1,3 @@
 # **Injae Choi**
   
-majoring **Economics, Artifical Intelligence** in Kyung Hee University  
+majoring in **Economics, Artifical Intelligence** at Kyung Hee University  
